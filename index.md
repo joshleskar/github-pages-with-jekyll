@@ -1,3 +1,3 @@
-# Welcome to my blog
+# JOSHUA LESKAR
 
-I'm glad you are here. I plan to talk about ...
+Inspired by the ever-talented Kevin Yien.
